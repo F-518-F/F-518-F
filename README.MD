@@ -33,14 +33,14 @@ I develop custom Roblox game scripts, tools, and utilities designed to enhance y
 > 📌 **Join My Discord Server** for script updates, previews, and support:  
 🔗 [Click Here To Join!](https://discord.gg/3hA9wVrvVu)
 
-> 💬 **DM Me on Discord**: `hoota_on_top`
+> 💬 **DM Me on Discord**: [My Account!](https://discord.com/users/1346947866241011895)
 
 ---
 
 ## 🔗 Connect with Me
 
 - 💻 GitHub: [@F-518-F](https://github.com/F-518-F)
-- 🧠 Discord Server: [Join here](https://discord.gg/3hA9wVrvVu)
+- 🧠 Discord Account: [Discord Account!](https://discord.com/users/1346947866241011895)
 
 ---
 
